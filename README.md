@@ -1,2 +1,2 @@
-# karejolaa.github.com
+# karejolaa.github.io
 Kohleen M. Arejola
