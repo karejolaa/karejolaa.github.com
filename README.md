@@ -15,11 +15,11 @@ recommended songs if gusto mo sumaya para umiyak ka lalo chos
   
 ![image](https://user-images.githubusercontent.com/122416209/212784672-c4efab98-240d-4f62-992a-2070d2d2bcab.png)
 
-stress si mayor wuajhasjhi
-
-more chikas to come bestie ew yak 
+stress si mayor-
 
 ![image](https://user-images.githubusercontent.com/122416209/212785561-0e21af38-61d3-4e26-a9a3-79936337e064.png)
+
+more chikas to come bestie ew yak
 
 ![image](https://user-images.githubusercontent.com/122416209/212785660-156d7ede-0785-4ccc-9b47-6ebaa6132653.png)
 
