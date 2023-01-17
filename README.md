@@ -16,3 +16,20 @@ recommended songs if gusto mo sumaya para umiyak ka lalo chos
 ![image](https://user-images.githubusercontent.com/122416209/212784672-c4efab98-240d-4f62-992a-2070d2d2bcab.png)
 
 stress si mayor wuajhasjhi
+
+more chikas to come bestie ew yak 
+
+![image](https://user-images.githubusercontent.com/122416209/212785561-0e21af38-61d3-4e26-a9a3-79936337e064.png)
+
+![image](https://user-images.githubusercontent.com/122416209/212785660-156d7ede-0785-4ccc-9b47-6ebaa6132653.png)
+
+slayful ka diyan zoe 
+
+![image](https://user-images.githubusercontent.com/122416209/212785746-4b776fc7-a749-481f-98f1-a401cd58e9fa.png)
+ 
+ anak tayo ka diyan picturan kita HWUYAHSHAH
+ 
+ 
+ ![image](https://user-images.githubusercontent.com/122416209/212785861-b6b8698e-eb78-4f27-b7c3-fd067b687db1.png)
+
+lovvet 
